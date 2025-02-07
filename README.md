@@ -1,1 +1,0 @@
-# palmaliv.github.io
